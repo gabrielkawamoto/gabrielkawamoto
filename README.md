@@ -1,4 +1,4 @@
-## Olá! eu sou o Gabriel Kawamoto 🙂
+## Olá! Eu sou o Gabriel Kawamoto 🙂
 
 <br>
 <a href="https://github.com/gabrielkawamoto/github-readme-stats">
